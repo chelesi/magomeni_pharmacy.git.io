@@ -1,0 +1,1 @@
+# magomeni_pharmacy
